@@ -1,1 +1,0 @@
-I wish a good day to whoever is reading this text.пше
